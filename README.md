@@ -14,5 +14,5 @@ Let me know if you have any questions or need any adjustments!
 
 V/r,
 
-** Uchenna Nicole Security Analyst**<br/>
+**Uchenna Nicole, Security Analyst**<br/>
 **Governance, Risk, and Compliance**
